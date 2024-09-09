@@ -1,1 +1,1 @@
-# weedbudy
+# weedbuddy
